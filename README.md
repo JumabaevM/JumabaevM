@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @JumabaevM
+- 👀 I’m interested in programming, python, solidity blokchain, java, java script, c
+- 🌱 I’m currently learning java and kotlin
+- 💞️ I’m looking to collaborate on .........
+- 📫 How to reach me telegram @Dgdv443
+- ❤️ Already taken
+- 🌯🥟🍧🍚🍥
