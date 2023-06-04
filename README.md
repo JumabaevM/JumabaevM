@@ -2,6 +2,6 @@
 - 👀 I’m interested in programming, python, solidity blokchain, java, java script, c
 - 🌱 I’m currently learning java and kotlin
 - 💞️ I’m looking to collaborate on .........
-- 📫 How to reach me telegram @Dgdv443
+- 📫 How to reach me telegram @belaiaroza
 - ❤️ Already taken
 - 🌯🥟🍧🍚🍥
